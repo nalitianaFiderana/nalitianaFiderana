@@ -1,5 +1,5 @@
 # **Hi, Salut,** 😃  
-## My name is `#0000` *NALITIANA RIVONTSOA Fiderana*  
+`#3565CD` ## My name is *NALITIANA RIVONTSOA Fiderana*  
 I'm a young developer in Madagascar  
 
 > Still a developer but have more dream to follow and goals to achieve 😎
